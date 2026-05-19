@@ -1,4 +1,4 @@
-# 
+# New Adobe Premiere Pro for PC scripts is the best Adobe Premiere Pro for PC scripts with multi-cam-editing and green-screen. Safe, reliable, and optimized for maximum performance.
 
 
 
